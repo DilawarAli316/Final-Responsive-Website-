@@ -1,1 +1,1 @@
-TinDog Starting Files
+XaineOgraphy-A Photography Project
